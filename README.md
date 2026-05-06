@@ -1,3 +1,3 @@
 # discord-bots
 discord
-OTA5OTMwOTQxNjM0NDQ5NDIw.G0JoyT.wHid7B01yA_htypaDrTu3uWhL4WKfYP3uMiZMs
+MjU3MDIwMzYwNDk3NjkyNjgz.G0JoyT.wHid7B01yA_htypaDrTu3uWhL4WKfYP3uMiZMs
